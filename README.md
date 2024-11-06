@@ -2,9 +2,11 @@
 My name first and last name
 
 
-Royal Biakolo Limited Edutech Pitch Deck
+
 
 Royal Biakolo Limited Edutech Pitch Deck
+
+
 Royal Biakolo Limited is dedicated to revolutionizing education through cutting-edge technology. This pitch deck outlines our innovative edutech platform, its impact, and our vision for the future of learning. This document aims to secure grant funding to further our mission and expand our reach, empowering learners worldwide.
 
 
